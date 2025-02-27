@@ -1,2 +1,7 @@
+<<<<<<< HEAD
 Tercero
 Linea dos
+=======
+El tercero.
+Linea dos b
+>>>>>>> mi_branch
