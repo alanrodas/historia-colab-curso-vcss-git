@@ -20,7 +20,12 @@ la tinta corrida dificultaba la lectura, pero una frase resaltaba con claridad:
 ## Capítulo 04: Voces en la oscuridad
 La noche cayó rápidamente, y con ella, los sonidos del bosque cambiaron. Entre
 el susurro de las hojas, distinguió voces apagadas. No veía a nadie, pero sentía
-que lo observaban.
+que lo observaban, su primer instinto fue correr, pero el cuerpo no reaccionó.
+Entendio que la intriga por saber, podía más que sus miedos. ¿Por qué estaba el diario ahi? 
+y ¿Qué hacía en esa cabaña?, fueron las primeras cosas que se le venian a la mente. Le costaba 
+pensar... ¿quienes eran ELLOS en quien no debía confiar?. Buscó en su mente respuestas, intuía que 
+tenia las respuestas. Un movimiento cercano lo sacó de sus pensamientos y lo trajo nuevamente a la 
+realidad: una ardilla salió del bosque y se lo quedo mirando.
 
 ## Capítulo 05: Un extraño aliado
 Cuando pensó que estaba solo, una figura emergió de entre los árboles. Vestía
