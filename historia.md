@@ -30,8 +30,15 @@ conmigo", susurró antes de girarse y comenzar a correr.
 ## Capítulo 06: El refugio olvidado
 Tras correr varios minutos, llegaron a una cueva oculta tras una cascada.
 Dentro, las paredes estaban cubiertas de dibujos y símbolos que Adam no
-entendía. "Aquí estarás a salvo... por ahora", dijo el extraño, cerrando la
-entrada con una gran piedra.
+entendía. "Aquí estarás a salvo... por ahora", dijo el extraño, luego de cerrar 
+la entrada con una gran piedra. 
+Luego de horas encerrado, Adam empezo a notar que esos simbolos que por si solo 
+no tendria significado en conjunto con la combinacion correcta. Cual significado
+luego de varias horas los simbolos y dibujos eran para la ubicacion de una palanca
+que da una salida hacia un sendero, luego de ir a la ubicacion adam encuentra la
+palanca y sin dudar tira en ella. Desde el fondo se siente temblores y riudos 
+por un corto tiempo. La cueva totalmente iluminada la luz muetras el camino hacia
+un sendero en la cual adam acede ir.  
 
 ## Capítulo 07: Sombras en la niebla
 La bruma se cernía sobre el sendero, densa y pesada, como si intentara ocultar
