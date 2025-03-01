@@ -20,32 +20,36 @@ Tema: Un personaje misterioso ofrece ayuda. ¿Debería confiar en él?
 ## Capítulo 06: El refugio olvidado
 Tema: Adam conoce parte de la historia de su captor o salvador. Se revelan pistas importantes.
 
-## Capítulo 07: La verdad oculta
+## Capítulo 07: Sombras en la niebla
+Tema: El protagonista puede encontrar una pista oculta en la niebla, ver algo que no está seguro de haber visto, o incluso tener una visión extraña que lo haga dudar de la realidad. ¿Es un enemigo, un recuerdo, o algo más profundo?
+
+## Capítulo 08: La verdad oculta
 Tema: Se insinúa que Adam tomó una decisión drástica en el pasado. ¿Qué lo llevó a hacerlo?
 
-## Capítulo 08: Las sombras de la memoria
+## Capítulo 09: Las sombras de la memoria
 Tema: Adam empieza a recordar fragmentos de su pasado, pero aún no encajan del todo.
 
-## Capítulo 09: La traición
+## Capítulo 10: La traición
 Tema: Algo no encaja. ¿El aliado es realmente quien dice ser? ¿Es Adam quien debería temer?
 
-## Capítulo 10: La marca del destino
+## Capítulo 11: La marca del destino
 Tema: Un símbolo o marca en el cuerpo de Adam tiene un significado crucial. ¿Qué representa?
 
-## Capítulo 11: El umbral prohibido
+## Capítulo 12: El umbral prohibido
 Tema: Un descubrimiento clave lleva a Adam a un lugar prohibido o secreto.
 
-## Capítulo 12: Más allá del umbral
+## Capítulo 13: Más allá del umbral
 Tema: Adam cruza el umbral hacia un mundo diferente, extraño o peligroso.
 
-## Capítulo 13: Ecos de otro tiempo
+## Capítulo 14: Ecos de otro tiempo
 Tema: Adam se encuentra con seres que parecen conocerlo de antes. ¿Cuál es su relación con ellos?
 
-## Capítulo 14: La decisión final
+## Capítulo 15: La decisión final
 Tema: Adam debe tomar una decisión crucial que definirá su destino.
 
-## Capítulo 15: El precio de la verdad
+## Capítulo 16: El precio de la verdad
 Tema: Las consecuencias de su elección se hacen evidentes. ¿Fue la correcta?
 
-## Capítulo 16: El ciclo continúa
+## Capítulo 17: El ciclo continúa
 Tema: Un cierre enigmático que insinúa un ciclo repetitivo. ¿Realmente escapó?
+
