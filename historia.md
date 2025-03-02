@@ -89,4 +89,4 @@ los rayos del sol comienzan a desaparecer y se torna mas oscuro.
 Una niebla se arrastra desde el bosque y la lluvia comienza a golpear las ventanas, 
 Adam siente como si sus recuerdos se desvanecieran lentamente, la confusión 
 llenando su mente, hasta que, en un parpadeo, todo se borra y despierta de 
-nuevo en la cabaña, sin saber por qué está allí.
+nuevo en la cabaña, sin saber por qué está allí. 
