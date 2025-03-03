@@ -83,5 +83,9 @@ reacción en cadena que lo cambiará todo. La puerta comienza a cerrarse.
 
 ## Capítulo 17: El ciclo continúa
 Cuando la luz desaparece, Adam despierta en una cabaña conocida. El sol entra
-por las cortinas raídas. Afuera, el bosque canta con el amanecer. No recuerda
-cómo llegó allí.
+por las cortinas raídas. Afuera, el bosque canta con el amanecer. Un escalofrío
+le recorre la espalda al notar que la puerta está entreabierta.
+El aire es pesado y denso, con un olor a humedad y cenizas frías. Se esfuerza
+por levantarse, pero un mareo lo obliga a apoyar las manos en el suelo polvoriento.
+Su vista se posa en la mesa: un reloj de bolsillo abierto marca una hora imposible.
+La brisa se cuela entre las tablas, trayendo un murmullo que parece llamarlo.
