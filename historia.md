@@ -45,9 +45,11 @@ No tenía rostro, pero su presencia bastaba para helar la sangre.
 hecho algo así?
 
 ## Capítulo 09: Las sombras de la memoria
-Un dolor punzante recorrió su cabeza cuando intentó recordar. Imágenes borrosas
-aparecieron en su mente: una noche de tormenta, una promesa rota, un rostro
-desconocido que le suplicaba algo.
+Un dolor punzante recorrió su cabeza cuando intentó recordar. Imágenes borrosas que pasaban rápidamente le atormentaban.
+Aquel hombre, que yacía parado en frente de nuestro protagonista, se muestra extrañado. Este le tiende la mano pero Adam se aleja.
+Ahí, un recuerdo fugaz le viene a la mente. Sangre, mucha sangre... luego levanta su vista y resulta que esta proviene no de sí, si no que de un tercero.
+Las palabras crípticas que antes le habían pasado por las orejas ahora recorren su mente, incluso más rapido que sus recuerdos.
+Encajando a la perfección en aquella aterradora escena que perturbaba a nuestro protagonista. "La cabaña no fue un accidente"... sonaba una y otra vez en la mente de Adam, quien ya histérico, le suelta una pregunta al extraño.
 
 ## Capítulo 10: La traición
 La cueva ya no parecía tan segura. Adam notó que el extraño evitaba responder
