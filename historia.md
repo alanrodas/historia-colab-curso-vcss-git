@@ -51,9 +51,11 @@ aparecieron en su mente: una noche de tormenta, una promesa rota, un rostro
 desconocido que le suplicaba algo.
 
 ## Capítulo 10: La traición
-La cueva ya no parecía tan segura. Adam notó que el extraño evitaba responder
-algunas preguntas. Y entonces lo vio: en el suelo, parcialmente oculto bajo una
-roca, había un cuchillo con su nombre grabado en la hoja.
+La cueva ya no parecía tan segura. Adam notó que el extraño evitaba responder algunas preguntas. Su mirada se desviaba cada vez que mencionaba el pasado, como si ocultara algo.
+
+Cuando Adam bajó la vista, lo vio: en el suelo, parcialmente oculto bajo una roca, había un cuchillo con su nombre grabado en la hoja. Un escalofrío lo recorrió al reconocerlo. No solo era suyo, sino que estaba manchado con un rastro seco de algo que parecía sangre.
+
+El extraño dio un paso atrás. "No es lo que crees", murmuró, pero su voz temblorosa lo delataba. Adam apretó los dientes. Tal vez el peligro en realidad no estaba fuera de la cueva, sino justo frente a él.
 
 ## Capítulo 11: La marca del destino
 Al examinar su brazo, notó algo que antes no estaba allí: un símbolo tallado en
