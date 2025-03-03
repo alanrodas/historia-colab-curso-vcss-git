@@ -55,6 +55,11 @@ La cueva ya no parecía tan segura. Adam notó que el extraño evitaba responder
 algunas preguntas. Y entonces lo vio: en el suelo, parcialmente oculto bajo una
 roca, había un cuchillo con su nombre grabado en la hoja.
 
+Pensó que de ser asi habia estado previamente en esa cueva, el extraño sabía lo que 
+habia pasado y aún asi decidió no revelarle lo sucedido. Decidió tomar el cuchillo y 
+preguntarle al extraño por qué ese cuchillo llevaba su nombre, pero éste sólo se limitó
+a verlo. Internamente sintió que debia huir de alli cuanto antes.
+
 ## Capítulo 11: La marca del destino
 Al examinar su brazo, notó algo que antes no estaba allí: un símbolo tallado en
 su piel. El extraño palideció al verlo. "No puede ser...", murmuró.
