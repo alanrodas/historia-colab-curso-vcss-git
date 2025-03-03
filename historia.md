@@ -19,8 +19,9 @@ la tinta corrida dificultaba la lectura, pero una frase resaltaba con claridad:
 
 ## Capítulo 04: Voces en la oscuridad
 La noche cayó rápidamente, y con ella, los sonidos del bosque cambiaron. Entre
-el susurro de las hojas, distinguió voces apagadas. No veía a nadie, pero sentía
-que lo observaban.
+el susurro de las hojas, distinguió voces apagadas.Aunque no veia a nadie,podia percibir que lo observaban
+
+#Capitulo X: En ese momento,recordo la vez en que se perdio.Tambien era de noche. Tambien estaba solitario.De repente,se obligo a volver al presente
 
 ## Capítulo 05: Un extraño aliado
 Cuando pensó que estaba solo, una figura emergió de entre los árboles. Vestía
