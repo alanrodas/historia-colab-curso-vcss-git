@@ -51,14 +51,19 @@ aparecieron en su mente: una noche de tormenta, una promesa rota, un rostro
 desconocido que le suplicaba algo.
 
 ## Capítulo 10: La traición
-La cueva ya no parecía tan segura. Adam notó que el extraño evitaba responder
-algunas preguntas. Y entonces lo vio: en el suelo, parcialmente oculto bajo una
-roca, había un cuchillo con su nombre grabado en la hoja.
+La cueva ya no parecía tan segura. Adam notó que el extraño evitaba responder algunas preguntas. Y entonces lo vio: en el suelo, parcialmente oculto bajo una roca, había un cuchillo con su nombre grabado en la hoja.
 
-Pensó que de ser asi habia estado previamente en esa cueva, el extraño sabía lo que 
-habia pasado y aún asi decidió no revelarle lo sucedido. Decidió tomar el cuchillo y 
-preguntarle al extraño por qué ese cuchillo llevaba su nombre, pero éste sólo se limitó
-a verlo. Internamente sintió que debia huir de alli cuanto antes.
+Pensó que, de ser así, había estado previamente en esa cueva. El extraño sabía lo que había pasado y, aun así, decidió no revelarle lo sucedido. Decidió tomar el cuchillo y preguntarle por qué llevaba su nombre, pero este solo se limitó a verlo. Internamente, sintió que debía huir de allí cuanto antes.
+
+Un escalofrío recorrió su espalda cuando la luz de la antorcha iluminó mejor el mango del cuchillo. Había marcas en la empuñadura, muescas irregulares que parecían haber sido talladas con prisa. No eran solo cortes, sino números. Fechas. Su pecho se oprimió al notar que una de ellas coincidía con la noche en que despertó en la cabaña.
+
+El extraño dio un paso hacia él. "No debiste encontrar eso", murmuró con voz grave. Sus ojos, antes llenos de urgencia, ahora reflejaban algo más oscuro. Adam retrocedió instintivamente, aferrando el cuchillo con fuerza.
+
+"¿Qué me estás ocultando?" preguntó con la voz entrecortada.
+
+El silencio se volvió insoportable. Finalmente, el extraño suspiró y se quitó la capucha. Adam sintió cómo el suelo se desvanecía bajo sus pies. Frente a él, con su mismo rostro, estaba otro Adam.
+
+"Yo tomé la decisión que tú no recuerdas", dijo su doble, "y ahora es tu turno".
 
 ## Capítulo 11: La marca del destino
 Al examinar su brazo, notó algo que antes no estaba allí: un símbolo tallado en
