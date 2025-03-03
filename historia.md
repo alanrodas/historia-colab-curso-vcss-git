@@ -23,10 +23,14 @@ la tinta corrida dificultaba la lectura, pero una frase resaltaba con claridad:
 ## Capítulo 04: Voces en la oscuridad
 
 La noche cayó rápidamente, y con ella, los sonidos del bosque cambiaron. Entre
-el susurro de las hojas, distinguió voces apagadas. No veía a nadie, pero sentía
-que lo estaban obervando con siniestras mirada.
+el susurro de las hojas, distinguió voces apagadas. No veía a nadie, pero su corazon latia de manera desenfrenada.
 
-Su respiración se volvió errática mientras avanzaba con cautela. Cada crujido bajo sus pies parecía retumbar en la oscuridad, y el frío le erizaba la piel. De pronto, una ráfaga de viento trajo consigo un murmullo aún más claro, como si alguien pronunciara su nombre.
+Sus pasos crujían sobre la hojarasca húmeda.
+Cada sonido parecía un eco de su propia respiración.
+Un escalofrío recorrió su espalda sin razón aparente.
+Algo, o alguien, se movía en la penumbra del bosque.
+
+> > > > > > > f912004934d2b49882aa28ca62e6a2373f342abf
 
 ## Capítulo 05: Un extraño aliado
 
