@@ -21,6 +21,11 @@ observando cada paso, sintiendo cómo la tensión crecía. En un recodo del send
 un objeto brillante, casi oculto bajo las hojas secas. Su corazón se aceleró, pues no podía
 entender cómo algo así había llegado allí. Decidió acercarse, temeroso de lo que pudiera encontrar.
 
+"Es un cofre de oro y, al parecer, tiene un extraño sello que jamás he visto", exclamó en su mente.
+Atónito por el objeto encontrado, y sin mediar palabras, decide abrirlo. Para su sorpresa, los sucesos que están ocurriendo comienzan a tornarse más extraños.
+Lo que había dentro de ese cofre no podía ser cierto, Adam pudo sentir cómo un escalofrío recorría lo más recóndito de su ser. 
+Lo que estaba frente a sus ojos no podía ser cierto.
+
 
 
 ## Capítulo 03: Ecos del pasado
