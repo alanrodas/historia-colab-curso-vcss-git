@@ -70,7 +70,11 @@ allí antes.
 
 ## Capítulo 14: Ecos de otro tiempo
 Un grupo de figuras encapuchadas lo esperaba al otro lado. "Regresaste", dijo
-una voz familiar. "Pero... no eres el mismo".
+una voz conocida lo atravesó como un eco del pasado. "Tú... has cambiado".
+
+Adam sintió un escalofrío recorrer su espalda. No recordaba haber estado allí,
+y sin embargo, algo en su interior reconocía aquel lugar. El eco de antiguas
+memorias, borrosas y esquivas, latía en su mente como un susurro lejano.
 
 ## Capítulo 15: La decisión final
 Las piezas del rompecabezas finalmente encajan. Recuerda todo: el pacto, el
