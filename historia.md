@@ -58,6 +58,12 @@ roca, había un cuchillo con su nombre grabado en la hoja.
 Al examinar su brazo, notó algo que antes no estaba allí: un símbolo tallado en
 su piel. El extraño palideció al verlo. "No puede ser...", murmuró.
 
+Antes la desesperante situacion que se dio de manera inesperada, Adam busco la 
+calma para poder pensar con claridad asi poder analizar los simboles que quedo 
+en su piel. Lo cual podria ser importante para su destino, tal vez sea la pista 
+para una ubicacion desconocida o capas sea el siguente paso a dar, adam no le 
+quedo otra que investigar.
+
 El miedo recorrió todo su cuerpo al recordar la leyenda de su familia. 
 Ese símbolo solo aparecía en aquellos destinados a enfrentar el juicio final. 
 Intentó frotarlo, pero su piel ardió al contacto, como si el fuego lo protegiera.
