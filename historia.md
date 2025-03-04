@@ -50,7 +50,6 @@ Aquel hombre, que yacía parado en frente de nuestro protagonista, se muestra ex
 Ahí, un recuerdo fugaz le viene a la mente. Sangre, mucha sangre... luego levanta su vista y resulta que esta proviene no de sí, si no que de un tercero.
 Las palabras crípticas que antes le habían pasado por las orejas ahora recorren su mente, incluso más rapido que sus recuerdos.
 Encajando a la perfección en aquella aterradora escena que perturbaba a nuestro protagonista.
-
 El hombre permaneció en silencio por unos instantes, evaluando cada palabra que parecía luchar por salir de los labios de Adam.
 Finalmente, dio un paso adelante, con una expresión indescifrable. "No es lo que hiciste, Adam, sino lo que permitiste que sucediera".
 Esas palabras desencadenaron una nueva oleada de recuerdos, más vívidos esta vez: una cueva oscura, ecos de una discusión violenta, y un cuchillo que destellaba bajo una tenue luz.
