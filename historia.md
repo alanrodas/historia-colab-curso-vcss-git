@@ -15,16 +15,12 @@ hallar respuestas antes de que la noche cayera.
 ## Capítulo 03: Ecos del pasado
 En un claro del bosque, encontró un viejo diario cubierto de barro. Al abrirlo,
 la tinta corrida dificultaba la lectura, pero una frase resaltaba con claridad:
-<<<<<<< HEAD
 "No confíes en ellos". El nombre en la portada era el suyo, escrito con una caligrafía temblorosa.
 
 El frío le recorrió la espalda. Entre las frases borrosas, algunas palabras emergían:
 "recuerdos", "borrados", "ellos". Adam sintió que algo le faltaba.
 ¿Eran suyos esos recuerdos, o alguien los había puesto allí?
 Por primera vez, dudó de su propia memoria.
-=======
-"No confíes en ellos". El nombre en la portada era el suyo.
->>>>>>> main
 
 ## Capítulo 04: Voces en la oscuridad
 La noche cayó rápidamente, y con ella, los sonidos del bosque cambiaron. Entre
