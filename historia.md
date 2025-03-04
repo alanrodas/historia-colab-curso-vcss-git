@@ -3,8 +3,9 @@
 ## Capítulo 01: El despertar
 El sol se filtraba entre las cortinas raídas de la vieja cabaña, el televisor estaba encedido pero en la pantalla habia un cartel que decia: sin señal. Afuera, el
 bosque despertaba con el canto de los pájaros y el murmullo del viento entre los
-árboles desdpues de una noche muy lluviosa. Adam se incorporó lentamente, sintiendo aún el peso del sueño en sus
-párpados junto a un dolor de cabeza y un edor alcohol, whisky lo mas probable, lo sentia en su cuerpo y tambien en toda la cabaña. Pese a todo esto, no recordaba cómo había llegado alli .
+árboles despues de una noche muy lluviosa. Adam se incorporó lentamente, sintiendo aún el peso del sueño en sus
+párpados junto a un dolor de cabeza y un edor alcohol, whisky lo mas probable, lo sentia en su cuerpo y tambien en toda la cabaña. Pese a todo esto, no recordaba cómo había llegado alli, estaba demaciado intrigado que mil preguntas rondaban por su cabeza, Adam no era alguin que se emborracharse tan facil y mucho menos que sufria demaciado de la resaca habia algo mas en todo esto que no podia explicar. 
+
 
 ## Capítulo 02: Huellas en la tierra
 El suelo húmedo alrededor de la cabaña estaba marcado por pisadas recientes.
