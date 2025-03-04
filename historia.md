@@ -58,6 +58,11 @@ roca, había un cuchillo con su nombre grabado en la hoja.
 Al examinar su brazo, notó algo que antes no estaba allí: un símbolo tallado en
 su piel. El extraño palideció al verlo. "No puede ser...", murmuró.
 
+El miedo recorrió todo su cuerpo al recordar la leyenda de su familia. 
+Ese símbolo solo aparecía en aquellos destinados a enfrentar el juicio final. 
+Intentó frotarlo, pero su piel ardió al contacto, como si el fuego lo protegiera.
+La desesperación se adueñó de su cuerpo y mente.
+
 ## Capítulo 12: El umbral prohibido
 Guiado por nuevas pistas, Adam llegó a una puerta de piedra en medio del bosque.
 Estaba cubierta de símbolos idénticos al de su brazo. Al tocarla, la puerta
