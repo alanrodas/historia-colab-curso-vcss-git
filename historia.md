@@ -39,14 +39,20 @@ Dentro, las paredes estaban cubiertas de dibujos y símbolos que Adam no
 entendía. "Aquí estarás a salvo... por ahora", dijo el extraño, cerrando la
 entrada con una gran piedra.
 
-El eco resonó profundo, la humedad se sentía en el aire. Adam miró los símbolos, 
-intentando descifrar su sentido oculto. "¿Qué significan?", preguntó al extraño, 
-intrigado y confuso a la vez. "Este lugar conecta mundos", dijo él, con tono misterioso, 
+El eco resonó profundo, la humedad se sentía en el aire. Adam miró los símbolos,
+intentando descifrar su sentido oculto. "¿Qué significan?", preguntó al extraño,
+intrigado y confuso a la vez. "Este lugar conecta mundos", dijo él, con tono misterioso,
 sin añadir nada más.
 
-Más adelante, sobre una pared más lisa que las demás, encontró un grabado diferente. 
-Representaba una figura de pie frente a un umbral de piedra, con el mismo símbolo que él tenía en el brazo. 
-La imagen despertó una extraña familiaridad en su interior, una sensación de haber estado allí antes.
+Más adelante, sobre una pared más lisa que las demás, encontró un grabado diferente.
+Representaba una figura de pie frente a un umbral de piedra, con el mismo símbolo que él tenía
+en el brazo. La imagen despertó una extraña familiaridad en su interior, una sensación
+de que ese símbolo era la llave para un recuerdo perdido.
+
+¿Qué significaba ese símbolo? La figura del umbral, con ESE símbolo, lo perturbaba.
+"¿Por qué este lugar me resulta tan familiar?" preguntó Adam, buscando respuestas en el extraño.
+El rostro del hombre, ahora su protector, permaneció inexpresivo, como si guardara un secreto.
+"Las respuestas están aquí, en la piedra", murmuró finalmente, "debes encontrarlas tú mismo".
 
 ## Capítulo 07: Sombras en la niebla
 
