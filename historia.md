@@ -39,9 +39,10 @@ Dentro, las paredes estaban cubiertas de dibujos y símbolos que Adam no
 entendía. "Aquí estarás a salvo... por ahora", dijo el extraño, cerrando la
 entrada con una gran piedra.
 
-El eco resonó profundo, la humedad se sentía en el aire. Adam miró los símbolos,
-intentando descifrar su sentido oculto. En cada trazo había un patrón repetitivo, 
-como si contaran una historia que su mente se negaba a recordar.
+El eco resonó profundo, la humedad se sentía en el aire. Adam miró los símbolos, 
+intentando descifrar su sentido oculto. "¿Qué significan?", preguntó al extraño, 
+intrigado y confuso a la vez. "Este lugar conecta mundos", dijo él, con tono misterioso, 
+sin añadir nada más.
 
 Más adelante, sobre una pared más lisa que las demás, encontró un grabado diferente. 
 Representaba una figura de pie frente a un umbral de piedra, con el mismo símbolo que él tenía en el brazo. 
