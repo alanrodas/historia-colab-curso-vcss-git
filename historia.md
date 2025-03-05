@@ -27,12 +27,16 @@ Cuando pensó que estaba solo, una figura emergió de entre los árboles. Vestí
 ropas desgastadas y sus ojos reflejaban urgencia. "Si quieres vivir, ven
 conmigo", susurró antes de girarse y comenzar a correr.
 
-Lía dudó por un instante, su mente debatía entre seguir a un desconocido o quedarse
+Adam dudó por un instante, su mente debatía entre seguir a un desconocido o quedarse
 en el peligroso claro. La figura desapareció rápidamente entre las sombras, como 
 si el bosque mismo la reclamara. Sin pensarlo más, dio un paso adelante, sintiendo 
 una mezcla de miedo y curiosidad. ¿Qué podría ser tan urgente? ¿Y si la figura solo 
 la estaba llevando hacia un destino aún más oscuro? Sin embargo, la opción de quedarse 
 atrás parecía más peligrosa. Sin otra alternativa, comenzó a seguirla.
+Lleno de preguntas, pero con ritmo veloz, comenzó a correr tras los pasos de
+su presunto aliado, que, durante su previo instante de dudas, lo habia dejado atrás.
+Mientras intentaba alcanzarlo, comenzó a escuchar ruidos detras de él, y sin saber si lo estaban 
+persiguiendo o era su imaginacion, solo pudo acelerar el paso esperando alcanzar al extraño.
 
 ## Capítulo 06: El refugio olvidado
 Tras correr varios minutos, llegaron a una cueva oculta tras una cascada.
