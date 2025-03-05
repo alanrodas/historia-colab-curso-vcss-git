@@ -105,7 +105,11 @@ Encajando a la perfección en aquella aterradora escena que perturbaba a nuestro
 El hombre permaneció en silencio por unos instantes, evaluando cada palabra que parecía luchar por salir de los labios de Adam.
 Finalmente, dio un paso adelante, con una expresión indescifrable. "No es lo que hiciste, Adam, sino lo que permitiste que sucediera".
 Esas palabras desencadenaron una nueva oleada de recuerdos, más vívidos esta vez: una cueva oscura, ecos de una discusión violenta, y un cuchillo que destellaba bajo una tenue luz.
-Adam sintió cómo el suelo parecía desvanecerse bajo sus pies mientras las piezas del rompecabezas comenzaban, aterradoramente, a encajar.
+El aire en la cueva se tornó denso y, con cada latido, el terror de Adam crecía más.
+Intentó dar un paso atrás, pero su cuerpo se sentía anclado al suelo. 
+La voz en su cabeza insistía en que recordara, que asumiera lo que había hecho. 
+Su mirada vagó en la oscuridad hasta que algo percibió en el suelo.
+Iluminó su mirada el incandescente brillo de un objeto metálico que cegaba su cordura.
 
 ## Capítulo 10: La traición
 La cueva ya no parecía tan segura. Adam notó que el extraño evitaba responder
