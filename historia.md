@@ -49,7 +49,11 @@ Un dolor punzante recorrió su cabeza cuando intentó recordar. Imágenes borros
 Aquel hombre, que yacía parado en frente de nuestro protagonista, se muestra extrañado. Este le tiende la mano pero Adam se aleja.
 Ahí, un recuerdo fugaz le viene a la mente. Sangre, mucha sangre... luego levanta su vista y resulta que esta proviene no de sí, si no que de un tercero.
 Las palabras crípticas que antes le habían pasado por las orejas ahora recorren su mente, incluso más rapido que sus recuerdos.
-Encajando a la perfección en aquella aterradora escena que perturbaba a nuestro protagonista. "La cabaña no fue un accidente"... sonaba una y otra vez en la mente de Adam, quien ya histérico, le suelta una pregunta al extraño.
+Encajando a la perfección en aquella aterradora escena que perturbaba a nuestro protagonista. "La cabaña no fue un accidente"... pensaba Adam  mientras un miedo profundo se apoderaba de el.
+Incapaz de comprender lo que sucedia, hasta que finalmente, con voz temblorosa, le pidio respuestas al extraño
+El extraño comenzó a caminar hacia la oscuridad del bosque, dejando a Adam sin palabras. Sin embargo, algo en su interior le decía que debía seguirlo, aunque el miedo lo invadía. 
+¿Que es lo que no me estas contando?, pregunto Adam, pero el hombre no respondio.
+El ambiante parecia volverse mas pesado, como si un secreto estuviera a punto de ser revelado, uno que cambiara todo lo que Adam pensaba saber.
 
 ## Capítulo 10: La traición
 La cueva ya no parecía tan segura. Adam notó que el extraño evitaba responder
@@ -86,4 +90,5 @@ reacción en cadena que lo cambiará todo. La puerta comienza a cerrarse.
 ## Capítulo 17: El ciclo continúa
 Cuando la luz desaparece, Adam despierta en una cabaña conocida. El sol entra
 por las cortinas raídas. Afuera, el bosque canta con el amanecer. No recuerda
-cómo llegó allí.
+cómo llegó allí..
+
