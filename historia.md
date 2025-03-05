@@ -52,7 +52,10 @@ de que ese símbolo era la llave para un recuerdo perdido.
 ¿Qué significaba ese símbolo? La figura del umbral, con ESE símbolo, lo perturbaba.
 "¿Por qué este lugar me resulta tan familiar?" preguntó Adam, buscando respuestas en el extraño.
 El rostro del hombre, ahora su protector, permaneció inexpresivo, como si guardara un secreto.
-"Las respuestas están aquí, en la piedra", murmuró finalmente, "debes encontrarlas tú mismo".
+"Las respuestas están aquí, en la piedra", dijo al fin. "Debes encontrarlas tú mismo".
+
+Adam pasó los dedos sobre la piedra, sintiendo su aspereza, su historia grabada en símbolos. 
+Un escalofrío lo recorrió cuando, de repente, una densa bruma comenzó a filtrarse por la entrada de la cueva.
 
 ## Capítulo 07: Sombras en la niebla
 
