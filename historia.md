@@ -70,7 +70,10 @@ allí antes.
 
 ## Capítulo 14: Ecos de otro tiempo
 Un grupo de figuras encapuchadas lo esperaba al otro lado. "Regresaste", dijo
-una voz familiar. "Pero... no eres el mismo".
+una voz familiar. "Pero... no eres el mismo". Adam retrocedio, perplejo.
+No entendia por que su familia se encontraba alli, mucho menos en esas condiciones. Sus rostros,
+apenas visibles bajo la capucha y oscuridad, reflejaban años de hambruna y sufrimiento. 
+Intento hablar con ellos, obtener informacion de lo que estaba sucediendo, pero ellos solo respondian con una frase: "tienes que recordar".
 
 ## Capítulo 15: La decisión final
 Las piezas del rompecabezas finalmente encajan. Recuerda todo: el pacto, el
