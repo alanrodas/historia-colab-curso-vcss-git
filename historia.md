@@ -70,7 +70,8 @@ allí antes.
 
 ## Capítulo 14: Ecos de otro tiempo
 Un grupo de figuras encapuchadas lo esperaba al otro lado. "Regresaste", dijo
-una voz familiar. "Pero... no eres el mismo".
+una voz familiar. "Pero... no eres el mismo". Adam observó a las figuras, sintiendo que las conocía, pero sin poder recordar cómo. Algo despertaba en él, pero no entendía qué era. 
+Las opciones eran claras, pero las consecuencias, inciertas. Cada decisión lo llevaría a un futuro que no podía prever.
 
 ## Capítulo 15: La decisión final
 Las piezas del rompecabezas finalmente encajan. Recuerda todo: el pacto, el
