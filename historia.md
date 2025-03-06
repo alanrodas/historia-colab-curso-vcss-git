@@ -74,6 +74,10 @@ en su piel. Lo cual podria ser importante para su destino, tal vez sea la pista
 para una ubicacion desconocida o capas sea el siguente paso a dar, adam no le 
 quedo otra que investigar.
 
+El miedo recorrió todo su cuerpo al recordar la leyenda de su familia. 
+Ese símbolo solo aparecía en aquellos destinados a enfrentar el juicio final. 
+Intentó frotarlo, pero su piel ardió al contacto, como si el fuego lo protegiera.
+La desesperación se adueñó de su cuerpo y mente.
 
 ## Capítulo 12: El umbral prohibido
 Guiado por nuevas pistas, Adam llegó a una puerta de piedra en medio del bosque.
