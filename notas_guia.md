@@ -52,4 +52,3 @@ Tema: Las consecuencias de su elección se hacen evidentes. ¿Fue la correcta?
 
 ## Capítulo 17: El ciclo continúa
 Tema: Un cierre enigmático que insinúa un ciclo repetitivo. ¿Realmente escapó?
-

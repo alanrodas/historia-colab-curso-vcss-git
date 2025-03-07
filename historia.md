@@ -1,7 +1,6 @@
 # El Eco del Olvido
 
 ## Capítulo 01: El despertar
-
 El sol se filtraba entre las cortinas raídas de la vieja cabaña. Afuera, el
 bosque despertaba con el canto de los pájaros y el murmullo del viento entre los
 árboles. Adam se incorporó lentamente, sintiendo aún el peso del sueño en sus
