@@ -11,6 +11,28 @@ El suelo húmedo alrededor de la cabaña estaba marcado por pisadas recientes.
 Algunas parecían ser suyas, pero otras eran más grandes y profundas. Con un
 escalofrío recorriéndole la espalda, Adam decidió seguirlas, con la esperanza de
 hallar respuestas antes de que la noche cayera.
+Aún confundido y un tanto cansado, intentaba concentrarse en las huellas que lograba identificar.
+Luchando con la angustia y la incertidumbre seguía avanzando, necesitaba comprender la situación,
+¿Cómo es que había llegado a esa cabaña? ¿Estaba solo? ¿Alguien lo había acompañado hasta es lugar?
+Su mente no paraba de dar vueltas al asunto, mientras intentaba pisar firme la hierba húmeda.
+
+Las huellas seguían su curso, perdiéndose en la oscuridad del bosque. Adam caminaba con cautela,
+observando cada paso, sintiendo cómo la tensión crecía. En un recodo del sendero, vio algo raro:
+un objeto brillante, casi oculto bajo las hojas secas. Su corazón se aceleró, pues no podía
+entender cómo algo así había llegado allí. Decidió acercarse, sintiendo cómo su respiración se volvía más pesada con cada paso.
+
+Con el pulso acelerado, Adam se inclinó y apartó las hojas con cautela.
+Bajo ellas, encontró un reloj de bolsillo, su cubierta de plata reflejaba la luz de la luna.
+Al tocarlo, una sensación extraña recorrió su cuerpo, como si un recuerdo distante intentara manifestarse.
+No reconocía el objeto, pero algo en él le resultaba inquietantemente familiar.
+
+Tomó aire y se inclinó para recogerlo. Era un collar de plata cubierta de barro. Sus dedos temblaban 
+al girarlo, descubriendo unas iniciales grabadas en su superficie. Miró a su alrededor con cautela, 
+notando que las huellas parecían alteradas, como si alguien hubiera intentado borrarlas. 
+El viento sopló con fuerza entre los árboles, y por un instante, creyó escuchar un susurro lejano.
+
+
+El susurro se desvaneció en la distancia, dejando a Adam con la piel erizada y una sensación de inquietud. Sin dudarlo, se lanzó a correr, tropezando con raíces y esquivando ramas bajas, la respiración agitada. De repente, como si el bosque mismo quisiera detenerlo, las ramas de un arbusto se interpusieron en su camino, haciéndolo tropezar y rodar colina abajo. El golpe sordo contra la tierra le quitó el aire, y el dolor punzante en la rodilla lo aturdió. Con el mundo girando a su alrededor, divisó a lo lejos un resplandor de claridad en la negrura del bosque.
 
 ## Capítulo 03: Ecos del pasado
 En un claro del bosque, encontró un viejo diario cubierto de barro. Al abrirlo,
@@ -117,8 +139,29 @@ algunas preguntas. Y entonces lo vio: en el suelo, parcialmente oculto bajo una
 roca, había un cuchillo con su nombre grabado en la hoja.
 
 ## Capítulo 11: La marca del destino
+
 Al examinar su brazo, notó algo que antes no estaba allí: un símbolo tallado en
 su piel. El extraño palideció al verlo. "No puede ser...", murmuró.
+
+El miedo recorrió todo su cuerpo al recordar la leyenda de su familia. 
+Ese símbolo solo aparecía en aquellos destinados a enfrentar el juicio final. 
+Intentó frotarlo, pero su piel ardió al contacto, como si el fuego lo protegiera.
+La desesperación se adueñó de su cuerpo y mente, sus pensamientos se llenaron de preguntas. 
+Miró al extraño que todavia tenia en su rostro la expresión de sorpresa. 
+Vio como remangaba su manga y la expresión que había estado en el rostro de su acompañante se
+dibujo en el de Adam... tenían el mismo simbolo. Fue en ese momento que Adam reconocio
+en aquel extraño cierta familiaridad. Conocía a esa persona. 
+
+Antes la desesperante situacion que se dio de manera inesperada, Adam busco la 
+calma para poder pensar con claridad asi poder analizar los simboles que quedo 
+en su piel. Lo cual podria ser importante para su destino, tal vez sea la pista 
+para una ubicacion desconocida o capas sea el siguente paso a dar, adam no le 
+quedo otra que investigar.
+
+El miedo recorrió todo su cuerpo al recordar la leyenda de su familia. 
+Ese símbolo solo aparecía en aquellos destinados a enfrentar el juicio final. 
+Intentó frotarlo, pero su piel ardió al contacto, como si el fuego lo protegiera.
+La desesperación se adueñó de su cuerpo y mente.
 
 ## Capítulo 12: El umbral prohibido
 Guiado por nuevas pistas, Adam llegó a una puerta de piedra en medio del bosque.
@@ -143,8 +186,22 @@ pasando, Adam no se detuvo.
 
 ## Capítulo 13: Más allá del umbral
 Al otro lado de la puerta, la realidad parecía distorsionada. El cielo tenía un
-color imposible y la gravedad se sentía extraña. Algo le decía que había estado
-allí antes.
+color imposible y la gravedad se sentía extraña. Sin embargo, algo le resultaba 
+familiar; tenía la sensación de haber estado allí antes, pero no lo recordaba.
+Era similar al bosque, pero distorsionado; la forma de los árboles era extraña,
+y sus sombras parecían alargarse de manera antinatural. El suelo tenía una 
+vegetación nunca antes vista, y alrededor habían criaturas misteriosas, figuras
+extrañas que no pertenecían a este mundo. Todo parecía irreal. Se sentía 
+confundido. ¿Qué era ese misterioso lugar?
+Al intentar acercarse a una de estas creaturas, la misma salió corriendo. Debido a la dirección poco natural de la misma, Adam la siguió, pensando que lo estaba guiando. Empezó a correr detrás de la misma, la cual lo alentaba a apurarse. Adam se detuvo en seco, observando a su alrededor.
+ 
+El paisaje era extraño, pero al mismo tiempo familiar. Recordó haber visto algo similar en un sueño recurrente. La sensación de déjà vu lo invadió mientras miraba las sombras moverse alrededor. Algo estaba a punto de suceder.
+
+Adam comenzó a caminar con cautela, sintiendo cómo el aire a su alrededor se volvía más espeso, casi tangible. Las sombras no solo se movían, sino que parecían cobrar vida, como si el propio bosque estuviera consciente de su presencia. 
+Cada rincón parece familiar, pero algo en
+el aire lo hace sentir que algo está mal, como si estuviera 
+atrapado en un ciclo del que no puede escapar.
+La puerta se cierra lentamente tras él, y por un momento, un murmullo distante lo llama desde la oscuridad del bosque.
 
 ## Capítulo 14: Ecos de otro tiempo
 Un grupo de figuras encapuchadas lo esperaba al otro lado. "Regresaste", dijo
@@ -202,6 +259,28 @@ frente a él mientras repasa todo lo ocurrido en su mente, tratando de pensar en
 "la próxima vez será diferente" susurra antes de perder la consciencia y hundirse en la oscuridad.
 
 ## Capítulo 17: El ciclo continúa
-Cuando la luz desaparece, Adam despierta en una cabaña conocida. El sol entra
-por las cortinas raídas. Afuera, el bosque canta con el amanecer. No recuerda
-cómo llegó allí.
+Cuando la luz desaparece, Adam despierta en una cabaña conocida. El sol entra por 
+las cortinas raídas. Afuera, el bosque canta con el amanecer. No tiene noción del tiempo.
+
+Adam siente un mareo repentino mientras la niebla se extiende por la cabaña,
+reduciendo su visibilidad. Desesperado, recorre las habitaciones buscando la salida.
+Finalmente, cae desmayado al suelo. Al despertar, se encuentra en el mismo lugar, 
+con la sensación de haber vivido esto antes. Mareado y desconcertado, intenta levantarse.
+
+Incorporándose con dificultad, Adam nota que la cabaña parece diferente. Las paredes, 
+que antes eran de madera oscura, ahora tienen grietas por donde la neblina se filtra 
+como si tuviera vida propia. En el suelo, unas marcas extrañas brillan tenuemente. 
+Un sonido lejano, parecido a un susurro, resuena en su cabeza. Siente una presencia observándolo. 
+Algo en la cabaña ha cambiado. Algo acecha en la penumbra.
+
+Un golpe seco rompe el silencio. Adam se gira, pero no hay nadie. Su respiración se agita. 
+De pronto, las marcas en el suelo comienzan a expandirse, formando un patrón inquietante. 
+Sus pies parecen hundirse en la madera, como si el suelo se ablandara. La neblina se 
+arremolina a su alrededor, y las sombras en los rincones se estiran, acercándose. 
+Adam intenta moverse, pero el miedo lo detiene.
+
+Las paredes, antes sólidas y familiares, ahora parecen latir, como si algo dentro de ellas 
+estuviera vivo. Un sonido sordo, casi imperceptible, emerge del suelo. 
+Adam observa cómo las marcas en el suelo se conectan, creando figuras geométricas, 
+como un antiguo símbolo arcano. De repente, una ráfaga de aire frío lo hace temblar. 
+El susurro en su cabeza se escucha intensificado, y es entonces cuando claramente una palabra: "Vuelve" .
