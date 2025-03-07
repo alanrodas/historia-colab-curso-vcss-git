@@ -83,6 +83,10 @@ Sintió una presión en el pecho, como si un peso invisible lo empujara hacia el
 Sabía que debía hablar, pero las palabras se quedaban atrapadas en su garganta, sin poder salir.
 Las figuras esperaban en silencio, mientras el miedo y la confusión lo inmovilizaban por completo.
 
+Todo comenzo a desvanecerse a su alrededor. No podia diferenciar si aquello estuviera ocurriendo realmente, o solo es su imaginacion.
+ Comenzo a escuchar susurros, que poco a poco se convirtieron en gritos desgarradores. "TIENES
+ QUE RECORDAR" repetian todos al unisono.
+
 ## Capítulo 15: La decisión final
 Las piezas del rompecabezas finalmente encajan. Recuerda todo: el pacto, el
 sacrificio, la traición. Ahora tiene dos opciones, pero ambas tienen
