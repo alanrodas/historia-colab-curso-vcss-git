@@ -70,6 +70,7 @@ allí antes.
 
 ## Capítulo 14: Ecos de otro tiempo
 Un grupo de figuras encapuchadas lo esperaba al otro lado. "Regresaste", dijo
+<<<<<<< HEAD
 una voz familiar. "Pero... no eres el mismo". Adam observó a las figuras, sintiendo que las conocía, pero sin poder recordar cómo. Algo despertaba en él, pero no entendía qué era. 
 Las opciones eran claras, pero las consecuencias, inciertas. Cada decisión lo llevaría a un futuro que no podía prever.
 
@@ -82,6 +83,10 @@ Un escalofrío recorrió su espalda mientras las sombras distorsionaban su perce
 Sintió una presión en el pecho, como si un peso invisible lo empujara hacia el centro del círculo.
 Sabía que debía hablar, pero las palabras se quedaban atrapadas en su garganta, sin poder salir.
 Las figuras esperaban en silencio, mientras el miedo y la confusión lo inmovilizaban por completo.
+
+Todo comenzo a desvanecerse a su alrededor. No podia diferenciar si aquello estuviera ocurriendo realmente, o solo es su imaginacion.
+ Comenzo a escuchar susurros, que poco a poco se convirtieron en gritos desgarradores. "TIENES
+ QUE RECORDAR" repetian todos al unisono.
 
 ## Capítulo 15: La decisión final
 Las piezas del rompecabezas finalmente encajan. Recuerda todo: el pacto, el
