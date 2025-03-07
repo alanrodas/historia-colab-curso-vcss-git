@@ -46,7 +46,13 @@ le hizo dudar si esas palabras eran suyas o de alguien más.
 Había frases tachadas y otras apenas visibles, pero algunas destacaban:
 "recuerdos alterados", "vigilado", "control". Adam sintió un vacío frío en su mente.
 Si sus memorias podían ser manipuladas, ¿qué parte de él seguía siendo real?
-Por primera vez, temió que sus pensamientos no fueran completamente suyos.
+Por primera vez, temió que sus pensamientos no fueran completamente suyos… o que alguien más los hubiera escrito por él...
+
+Un escalofrío recorrió su espalda cuando pasó las páginas. Había una lista con fechas,
+nombres y eventos que aún no habían sucedido. Su nombre aparecía una y otra vez,
+como si el diario estuviera narrando su futuro con una precisión inquietante.
+Al final de una página, casi borrada por la humedad, una advertencia clara le erizó la piel:
+"Cuando leas esto, será demasiado tarde".
 
 ## Capítulo 04: Voces en la oscuridad
 La noche cayó rápidamente, y con ella, los sonidos del bosque cambiaron. Entre
