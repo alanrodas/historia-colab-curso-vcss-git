@@ -78,6 +78,8 @@ Las figuras lo rodeaban, expectantes, aguardando un paso que solo él podía dar
 Un susurro lejano se filtró en su mente, avivando una verdad que aún no comprendía.
 Adam supo entonces que el pasado lo había alcanzado y ya no había vuelta atrás.
 
+Un escalofrío recorrió su espalda mientras las sombras se alargaban, distorsionando su percepción de la realidad. Sintió una presión creciente sobre su pecho, como si un peso invisible lo empujara hacia el centro del círculo. Sabía que tenía que hablar, pero las palabras se quedaban atrapadas en su garganta. Las figuras aguardaban, pero él no podía recordar cómo había llegado hasta allí ni qué se esperaba de él. El miedo y la confusión lo ahogaban, pero había algo más... algo que lo impulsaba a enfrentarse a lo que sea que estuviera por venir.
+
 ## Capítulo 15: La decisión final
 Las piezas del rompecabezas finalmente encajan. Recuerda todo: el pacto, el
 sacrificio, la traición. Ahora tiene dos opciones, pero ambas tienen
