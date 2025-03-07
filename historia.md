@@ -48,6 +48,7 @@ Había frases tachadas y otras apenas visibles, pero algunas destacaban:
 Si sus memorias podían ser manipuladas, ¿qué parte de él seguía siendo real?
 Por primera vez, temió que sus pensamientos no fueran completamente suyos… o que alguien más los hubiera escrito por él...
 
+
 Un escalofrío recorrió su espalda cuando pasó las páginas. Había una lista con fechas,
 nombres y eventos que aún no habían sucedido. Su nombre aparecía una y otra vez,
 como si el diario estuviera narrando su futuro con una precisión inquietante.
