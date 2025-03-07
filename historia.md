@@ -132,12 +132,12 @@ Esas palabras desencadenaron una nueva oleada de recuerdos, más vívidos esta v
 El aire en la cueva se tornó denso y, con cada latido, el terror de Adam crecía más. Intentó dar un paso atrás, pero su cuerpo se sentía anclado al suelo. 
 La voz en su cabeza insistía en que recordara, que asumiera lo que había hecho. 
 Su mirada vagó en la oscuridad hasta que algo percibió en el suelo.
-Ilumino su mirada el incandescente brillo de un objeto metalico que cegaba su cordura. 
+Iluminó su mirada el incandescente brillo de un objeto metálico que cegaba su cordura. 
 
-"Recuerda lo que perdiste Adam..." susurro la voz en su mente.
+"Recuerda lo que perdiste Adam..." susurró la voz en su mente.
 La oscuridad en la cueva se volvió opresiva. Adam miró al extraño con desconfianza, pero algo no encajaba.
 Una sensacion de traición lo envolvía mientras el aire se hacia más denso, pesado.
-Sus ojos recorrieron el suelo hasta que se detuvieron en un destello metalico. Algo no estaba bien...
+Sus ojos recorrieron el suelo hasta que se detuvieron en un destello metálico. Algo no estaba bien...
 
 ## Capítulo 10: La traición
 La cueva ya no parecía tan segura. Adam notó que el extraño evitaba responder
