@@ -65,6 +65,8 @@ El silencio se volvió insoportable. Finalmente, el extraño suspiró y se quit�
 
 "Yo tomé la decisión que tú no recuerdas", dijo su doble, "y ahora es tu turno".
 
+Adam se quedo mirando desconcertado a su interlocutor. Como era esto posible? Como podia otra persona tener su mismo rostro? Fue entonces cuando algo llamo su atencion, una antigua cicatriz en el brazo del otro Adam que parecia autoinflingida. Eran unos simbolos extraños aparentemente hechos con la punta de un cuchillo.
+
 ## Capítulo 11: La marca del destino
 Al examinar su brazo, notó algo que antes no estaba allí: un símbolo tallado en
 su piel. El extraño palideció al verlo. "No puede ser...", murmuró.
