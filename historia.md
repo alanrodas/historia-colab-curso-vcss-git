@@ -124,17 +124,20 @@ Aquel hombre, que yacía parado en frente de nuestro protagonista, se muestra ex
 Ahí, un recuerdo fugaz le viene a la mente. Sangre, mucha sangre... luego levanta su vista y resulta que esta proviene no de sí, si no que de un tercero.
 Las palabras crípticas que antes le habían pasado por las orejas ahora recorren su mente, incluso más rapido que sus recuerdos.
 Encajando a la perfección en aquella aterradora escena que perturbaba a nuestro protagonista.
+
 El hombre permaneció en silencio por unos instantes, evaluando cada palabra que parecía luchar por salir de los labios de Adam.
 Finalmente, dio un paso adelante, con una expresión indescifrable. "No es lo que hiciste, Adam, sino lo que permitiste que sucediera".
 Esas palabras desencadenaron una nueva oleada de recuerdos, más vívidos esta vez: una cueva oscura, ecos de una discusión violenta, y un cuchillo que destellaba bajo una tenue luz.
-El aire en la cueva se tornó denso y, con cada latido, el terror de Adam crecía más.
-Intentó dar un paso atrás, pero su cuerpo se sentía anclado al suelo. 
+
+El aire en la cueva se tornó denso y, con cada latido, el terror de Adam crecía más. Intentó dar un paso atrás, pero su cuerpo se sentía anclado al suelo. 
 La voz en su cabeza insistía en que recordara, que asumiera lo que había hecho. 
 Su mirada vagó en la oscuridad hasta que algo percibió en el suelo.
-Ilumino si mirada el incandescente brillo de un objeto metalico que cegaba su cordura. Recuerda lo que perdiste Adam, susurro la voz en su mente
-La oscuridad en la cueva se volvio opresiva. Adam miro al extraño con desconfianza, pero algo no encajaba
-Una sensacion de traicion lo envolvia mientras el aire se hacia mas denso, pesado.
-Sus ojos recorrieron el suelo hasta que se detuvieron en un destello metalico. Algo no estaba bien
+Ilumino su mirada el incandescente brillo de un objeto metalico que cegaba su cordura. 
+
+"Recuerda lo que perdiste Adam..." susurro la voz en su mente.
+La oscuridad en la cueva se volvió opresiva. Adam miró al extraño con desconfianza, pero algo no encajaba.
+Una sensacion de traición lo envolvía mientras el aire se hacia más denso, pesado.
+Sus ojos recorrieron el suelo hasta que se detuvieron en un destello metalico. Algo no estaba bien...
 
 ## Capítulo 10: La traición
 La cueva ya no parecía tan segura. Adam notó que el extraño evitaba responder
