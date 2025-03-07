@@ -70,10 +70,9 @@ allí antes.
 
 ## Capítulo 14: Ecos de otro tiempo
 Un grupo de figuras encapuchadas lo esperaba al otro lado. "Regresaste", dijo
-una voz familiar. "Pero... no eres el mismo". Adam observó a las figuras, sintiendo que las conocía, pero sin poder recordar cómo. Algo despertaba en él, pero no entendía qué era. 
-Las opciones eran claras, pero las consecuencias, inciertas. Cada decisión lo llevaría a un futuro que no podía prever.
+una voz familiar. "Pero... no eres el mismo".
 
-Algo dentro de él intentaba luchar por salir, pero la confusión lo consumía aún más. Dio un paso hacia adelante, sintiendo la presión de las miradas. Las figuras no se movían, pero su presencia era inconfundible. Adam sabía que algo importante estaba a punto de revelarse, aunque no podía entender cómo ni por qué.
+Un escalofrío recorrió su espalda mientras las sombras se alargaban, distorsionando su percepción de la realidad. Sintió una presión creciente sobre su pecho, como si un peso invisible lo empujara hacia el centro del círculo. Sabía que tenía que hablar, pero las palabras se quedaban atrapadas en su garganta. Las figuras aguardaban, pero él no podía recordar cómo había llegado hasta allí ni qué se esperaba de él. El miedo y la confusión lo ahogaban, pero había algo más... algo que lo impulsaba a enfrentarse a lo que sea que estuviera por venir.
 
 ## Capítulo 15: La decisión final
 Las piezas del rompecabezas finalmente encajan. Recuerda todo: el pacto, el
