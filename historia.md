@@ -132,26 +132,25 @@ roca, había un cuchillo con su nombre grabado en la hoja.
 
 Al examinar su brazo, notó algo que antes no estaba allí: un símbolo tallado en
 su piel. El extraño palideció al verlo. "No puede ser...", murmuró.
-
 El miedo recorrió todo su cuerpo al recordar la leyenda de su familia. 
 Ese símbolo solo aparecía en aquellos destinados a enfrentar el juicio final. 
+
 Intentó frotarlo, pero su piel ardió al contacto, como si el fuego lo protegiera.
 La desesperación se adueñó de su cuerpo y mente, sus pensamientos se llenaron de preguntas. 
 Miró al extraño que todavia tenia en su rostro la expresión de sorpresa. 
 Vio como remangaba su manga y la expresión que había estado en el rostro de su acompañante se
-dibujo en el de Adam... tenían el mismo simbolo. Fue en ese momento que Adam reconocio
-en aquel extraño cierta familiaridad. Conocía a esa persona. 
+dibujo en el de Adam... tenían el mismo simbolo. 
 
-Antes la desesperante situacion que se dio de manera inesperada, Adam busco la 
-calma para poder pensar con claridad asi poder analizar los simboles que quedo 
-en su piel. Lo cual podria ser importante para su destino, tal vez sea la pista 
-para una ubicacion desconocida o capas sea el siguente paso a dar, adam no le 
-quedo otra que investigar.
+Fue en ese momento que Adam reconocio en aquel extraño cierta familiaridad, 
+a esa persona. Antes la desesperante situacion que se dio de manera inesperada, 
+buscó mantener la calma por lo que decidió buscar, en el extraño de la cueva, 
+las respuestas que necesitaba; le habló de una ubicacion, que el desconocia,
+en el bosque en donde encontraría las respuestas que estaba buscando.
 
-El miedo recorrió todo su cuerpo al recordar la leyenda de su familia. 
-Ese símbolo solo aparecía en aquellos destinados a enfrentar el juicio final. 
-Intentó frotarlo, pero su piel ardió al contacto, como si el fuego lo protegiera.
-La desesperación se adueñó de su cuerpo y mente.
+Adam le preguntó: "¿Cómo reconoceré la ubicacion?", y el extraño respondió
+"Lo sabrás cuando lo veas". Adam dió media vuelta y se encaminó hacia el bosque
+en busca de lo desconocido. Luego de un largo caminar, Adam encontró un sendero 
+de piedras, decidió seguir ese camino.
 
 ## Capítulo 12: El umbral prohibido
 Guiado por nuevas pistas, Adam llegó a una puerta de piedra en medio del bosque.
