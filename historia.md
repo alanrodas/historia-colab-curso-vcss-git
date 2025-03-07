@@ -57,8 +57,21 @@ entrada con una gran piedra.
 
 El eco resonó profundo, la humedad se sentía en el aire. Adam miró los símbolos,
 intentando descifrar su sentido oculto. "¿Qué significan?", preguntó al extraño,
-intrigado y confuso a la vez. "Este lugar conecta mundos", respondió él,
-misterioso, sin dar más detalles al respecto.
+intrigado y confuso a la vez. "Este lugar conecta mundos", dijo él, con tono misterioso,
+sin añadir nada más.
+
+Más adelante, sobre una pared más lisa que las demás, encontró un grabado diferente.
+Representaba una figura de pie frente a un umbral de piedra, con el mismo símbolo que él tenía
+en el brazo. La imagen despertó una extraña familiaridad en su interior, una sensación
+de que ese símbolo era la llave para un recuerdo perdido.
+
+¿Qué significaba ese símbolo? La figura del umbral, con ESE símbolo, lo perturbaba.
+"¿Por qué este lugar me resulta tan familiar?" preguntó Adam, buscando respuestas en el extraño.
+El rostro del hombre, ahora su protector, permaneció inexpresivo, como si guardara un secreto.
+"Las respuestas están aquí, en la piedra", dijo al fin. "Debes encontrarlas tú mismo".
+
+Adam pasó los dedos sobre la piedra, sintiendo su aspereza, su historia grabada en símbolos. 
+Un escalofrío lo recorrió cuando, de repente, una densa bruma comenzó a filtrarse por la entrada de la cueva.
 
 ## Capítulo 07: Sombras en la niebla
 La bruma se cernía sobre el sendero, densa y pesada, como si intentara ocultar
