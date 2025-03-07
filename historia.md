@@ -26,6 +26,8 @@ Cada sonido parecía un eco de su propia respiración.
 Un escalofrío recorrió su espalda sin razón aparente.
 Algo, o alguien, se movía en la penumbra del bosque.
 
+De pronto, entre el murmullo de hojas y ramas, una risa débil y quebrada se deslizó en la brisa nocturna. No sonaba cercana, pero tampoco distante. Adam contuvo la respiración y aguzó el oído. Las voces seguían ahí, pero ahora parecían susurrarse entre sí, como si debatieran algo en secreto. Un crujido a su derecha lo hizo girar en seco. La oscuridad le devolvió una imagen borrosa, apenas un destello de movimiento entre los árboles. Sus músculos se tensaron. No estaba solo.
+
 ## Capítulo 05: Un extraño aliado
 Cuando pensó que estaba solo, una figura emergió de entre los árboles. Vestía
 ropas desgastadas y sus ojos reflejaban urgencia. "Si quieres vivir, ven
