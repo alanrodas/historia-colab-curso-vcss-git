@@ -70,8 +70,7 @@ allí antes.
 
 ## Capítulo 14: Ecos de otro tiempo
 Un grupo de figuras encapuchadas lo esperaba al otro lado. "Regresaste", dijo
-una voz familiar. "Pero... no eres el mismo". Adam observó a las figuras, sintiendo que las conocía, pero sin poder recordar cómo. Algo despertaba en él, pero no entendía qué era. 
-Las opciones eran claras, pero las consecuencias, inciertas. Cada decisión lo llevaría a un futuro que no podía prever.
+una voz familiar. "Pero... no eres el mismo".
 
 El aire se volvió denso, como si el tiempo mismo se detuviera a su alrededor.
 Las figuras lo rodeaban, expectantes, aguardando un paso que solo él podía dar.
