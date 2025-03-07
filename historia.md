@@ -4,7 +4,11 @@
 El sol se filtraba entre las cortinas raídas de la vieja cabaña. Afuera, el
 bosque despertaba con el canto de los pájaros y el murmullo del viento entre los
 árboles. Adam se incorporó lentamente, sintiendo aún el peso del sueño en sus
-párpados. No recordaba cómo había llegado allí.
+párpados. Él creía recordarlo todo.
+
+Al transcurrir unos minutos, notó que no eran verdaderos recuerdos, sino que su cerebro había ideado momentos para contrarrestar la sensación del olvido que sentía.
+Adam intentó volverse a dormir, pero no logró su objetivo.
+Ahora entonces, ya era tiempo de afrontar la realidad que estaba viviendo.
 
 ## Capítulo 02: Huellas en la tierra
 El suelo húmedo alrededor de la cabaña estaba marcado por pisadas recientes.
