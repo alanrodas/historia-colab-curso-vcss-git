@@ -1,10 +1,13 @@
 # El Eco del Olvido
 
 ## Capítulo 01: El despertar
-El sol se filtraba entre las cortinas raídas de la vieja cabaña. Afuera, el
-bosque despertaba con el canto de los pájaros y el murmullo del viento entre los
-árboles. Adam se incorporó lentamente, sintiendo aún el peso del sueño en sus
-párpados. No recordaba cómo había llegado allí.
+El sol se filtraba entre las cortinas raídas de la vieja cabaña. El televisor estaba encendido, pero en la pantalla solo se veía un cartel que decía: "Sin señal". Afuera, el bosque despertaba con el canto de los pájaros y el murmullo del viento entre los árboles, todavía húmedos por la intensa lluvia de la noche anterior.
+
+Adam se incorporó lentamente, sintiendo aún el peso del sueño en sus párpados. Un agudo dolor de cabeza lo golpeó de inmediato, acompañado por un fuerte olor a alcohol. Whisky, lo más probable. Lo sentía impregnado en su cuerpo y en toda la cabaña. Trató de recordar cómo había llegado allí, pero su mente era un caos de imágenes difusas.
+
+Por un momento, creyó recordar todo. Sin embargo, al transcurrir unos minutos, notó que no eran verdaderos recuerdos, sino que su cerebro había inventado momentos para llenar el vacío del olvido. Intentó volver a dormir, pero la inquietud no se lo permitió. Ahora, no tenía escapatoria: era momento de enfrentar la realidad.
+
+Algo no encajaba. Adam no era alguien que se emborrachara con facilidad, y mucho menos alguien que sufriera resacas tan intensas. Había algo más en todo esto, algo que no podía explicar...
 
 ## Capítulo 02: Huellas en la tierra
 El suelo húmedo alrededor de la cabaña estaba marcado por pisadas recientes.
