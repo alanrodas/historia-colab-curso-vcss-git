@@ -37,7 +37,23 @@ El susurro se desvaneció en la distancia, dejando a Adam con la piel erizada y 
 ## Capítulo 03: Ecos del pasado
 En un claro del bosque, encontró un viejo diario cubierto de barro. Al abrirlo,
 la tinta corrida dificultaba la lectura, pero una frase resaltaba con claridad:
-"No confíes en ellos". El nombre en la portada era el suyo.
+"No confíes en nadie". El nombre que encontro en ese diario era el suyo.
+ En este diario encontro instrucciones de lo que tenia que hacer y como 
+ actuar en diferentes circunstacias, parecia como si realmente lo hubiese escrito,
+el mismo pero en un futuro distante. Esto fue aterrador, pero al mismo tiempo
+le hizo dudar si esas palabras eran suyas o de alguien más.
+
+Había frases tachadas y otras apenas visibles, pero algunas destacaban:
+"recuerdos alterados", "vigilado", "control". Adam sintió un vacío frío en su mente.
+Si sus memorias podían ser manipuladas, ¿qué parte de él seguía siendo real?
+Por primera vez, temió que sus pensamientos no fueran completamente suyos… o que alguien más los hubiera escrito por él...
+
+
+Un escalofrío recorrió su espalda cuando pasó las páginas. Había una lista con fechas,
+nombres y eventos que aún no habían sucedido. Su nombre aparecía una y otra vez,
+como si el diario estuviera narrando su futuro con una precisión inquietante.
+Al final de una página, casi borrada por la humedad, una advertencia clara le erizó la piel:
+"Cuando leas esto, será demasiado tarde".
 
 ## Capítulo 04: Voces en la oscuridad
 La noche cayó rápidamente, y con ella, los sonidos del bosque cambiaron. Entre
