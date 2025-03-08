@@ -135,9 +135,25 @@ Manchitas saltó de su regazo y se acercó al hombre. Este se agachó y acarici�
 El hombre se puso de pie. "El tiempo se agota, Adam. Debes recordar antes de que ellos lleguen."
 
 ## Capítulo 09: Las sombras de la memoria
-Un dolor punzante recorrió su cabeza cuando intentó recordar. Imágenes borrosas
-aparecieron en su mente: una noche de tormenta, una promesa rota, un rostro
-desconocido que le suplicaba algo.
+Un dolor punzante recorrió su cabeza cuando intentó recordar. Imágenes borrosas que pasaban rápidamente le atormentaban.
+Aquel hombre, que yacía parado en frente de nuestro protagonista, se muestra extrañado. Este le tiende la mano pero Adam se aleja.
+Ahí, un recuerdo fugaz le viene a la mente. Sangre, mucha sangre... luego levanta su vista y resulta que esta proviene no de sí, si no que de un tercero.
+Las palabras crípticas que antes le habían pasado por las orejas ahora recorren su mente, incluso más rapido que sus recuerdos.
+Encajando a la perfección en aquella aterradora escena que perturbaba a nuestro protagonista.
+
+El hombre permaneció en silencio por unos instantes, evaluando cada palabra que parecía luchar por salir de los labios de Adam.
+Finalmente, dio un paso adelante, con una expresión indescifrable. "No es lo que hiciste, Adam, sino lo que permitiste que sucediera".
+Esas palabras desencadenaron una nueva oleada de recuerdos, más vívidos esta vez: una cueva oscura, ecos de una discusión violenta, y un cuchillo que destellaba bajo una tenue luz.
+
+El aire en la cueva se tornó denso y, con cada latido, el terror de Adam crecía más. Intentó dar un paso atrás, pero su cuerpo se sentía anclado al suelo. 
+La voz en su cabeza insistía en que recordara, que asumiera lo que había hecho. 
+Su mirada vagó en la oscuridad hasta que algo percibió en el suelo.
+Iluminó su mirada el incandescente brillo de un objeto metálico que cegaba su cordura. 
+
+"Recuerda lo que perdiste Adam..." susurró la voz en su mente.
+La oscuridad en la cueva se volvió opresiva. Adam miró al extraño con desconfianza, pero algo no encajaba.
+Una sensacion de traición lo envolvía mientras el aire se hacia más denso, pesado.
+Sus ojos recorrieron el suelo hasta que se detuvieron en un destello metálico. Algo no estaba bien...
 
 ## Capítulo 10: La traición
 La cueva ya no parecía tan segura. Adam notó que el extraño evitaba responder
