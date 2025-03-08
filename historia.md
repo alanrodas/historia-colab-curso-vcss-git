@@ -33,10 +33,20 @@ si el bosque mismo la reclamara. Sin pensarlo más, dio un paso adelante, sintie
 una mezcla de miedo y curiosidad. ¿Qué podría ser tan urgente? ¿Y si la figura solo 
 la estaba llevando hacia un destino aún más oscuro? Sin embargo, la opción de quedarse 
 atrás parecía más peligrosa. Sin otra alternativa, comenzó a seguirla.
+
 Lleno de preguntas, pero con ritmo veloz, comenzó a correr tras los pasos de
 su presunto aliado, que, durante su previo instante de dudas, lo habia dejado atrás.
 Mientras intentaba alcanzarlo, comenzó a escuchar ruidos detras de él, y sin saber si lo estaban 
 persiguiendo o era su imaginacion, solo pudo acelerar el paso esperando alcanzar al extraño.
+
+Adam sintió el latido acelerado en su pecho mientras corría. Las sombras del bosque
+parecían moverse a su alrededor, distorsionando su percepción. Por un momento,
+creyó escuchar pasos adicionales tras de él, no solo los suyos. ¿Era su imaginación o 
+algo más lo perseguía?
+El extraño iba unos metros adelante, sin voltear, como si supiera exactamente hacia
+dónde se dirigía. Adam tragó saliva, su mente dividida entre la desconfianza y la
+necesidad de seguirlo. El extraño giró la cabeza apenas un instante, 
+con la urgencia ardiendo en su mirada. “¡No te detengas!”
 
 ## Capítulo 06: El refugio olvidado
 Tras correr varios minutos, llegaron a una cueva oculta tras una cascada.
